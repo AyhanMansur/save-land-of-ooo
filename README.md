@@ -49,7 +49,7 @@ We are collecting real stories from fans to show how much the original ending hu
 
 ## 🌐 Follow Us
 
-- **Instagram:** [@save.ooo](https://instagram.com/save_ooo)
+- **Instagram:** [@save.ooo](https://www.instagram.com/save.ooo)
 - **Campaign Email:** umc.mansur13@icloud.com
 
 ---
